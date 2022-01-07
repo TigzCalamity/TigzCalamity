@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TigzCalamity
+- 👀 I’m interested in Minecraft Fps games ect
+- 🌱 I’m currently learning How to not fail 7th grade
+- 📫 How to reach me You can Reach me through discord as VL_TigzCalamity#4718 steam through TigzCalamity and thats pretty much it
